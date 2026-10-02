@@ -1,7 +1,7 @@
 # Avery-whatsinyourinventory
 hi
 
-<img width="736" height="1104" alt="6273" src="https://github.com/user-attachments/assets/74e756cf-7f85-4591-a9a7-be878e723efc" />
+<img width="400" height="400" alt="6273" src="https://github.com/user-attachments/assets/74e756cf-7f85-4591-a9a7-be878e723efc" />
 
 I love wifies n swight, hi
 ⋅˚₊‧ 𐙚 ‧₊˚ ♥
