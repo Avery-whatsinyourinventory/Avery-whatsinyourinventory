@@ -6,7 +6,7 @@ hi
 I love wifies n swight, hi
 ⋅˚₊‧ 𐙚 ‧₊˚ ♥
 
-[新book](https://www.example.com)  ────୨ৎ────  [pronouns](https://en.pronouns.page/@W.directorfies) 
+[新book](https://heycakeysucks.atabook.org/)  ────୨ৎ────  [pronouns](https://en.pronouns.page/@W.directorfies) 
 -
 I like femboys, bmf bmf,i love my friends
 why did I do this
