@@ -8,6 +8,10 @@
 
   this is a wip◡◠◡
 
+oomfs! 
+
+
+[sl3epzz](https://github.com/sl3epzz) [larpchan](https://github.com/larpchan) [TapedJaden](https://github.com/TapedJaden) [mustard-fragger](https://github.com/mustard-fragger) [teatimehue](https://github.clm/teatimehue) [khanhlbel](https://github.com/khanhlbel) [ImDumbIdk](https://github.com/ImDumbIdk) 
 
 
 ∘₊✧──────✧₊∘
