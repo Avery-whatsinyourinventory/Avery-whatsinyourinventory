@@ -2,7 +2,7 @@
 ꒷︶꒷꒥꒷︶꒷꒥꒷
 
 
-[ata](https//:heycakeysucks.atabook.org) - ✩ - [prns](https://en.pronouns.page/@W.directorfies) 
+[ata](https://heycakeysucks.atabook.org) - ✩ - [prns](https://en.pronouns.page/@W.directorfies) 
 
 ╰sign my ata for Robux!!! trust
 
