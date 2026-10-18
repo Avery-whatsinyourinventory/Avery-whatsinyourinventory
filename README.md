@@ -2,10 +2,11 @@
 ꒷︶꒷꒥꒷︶꒷꒥꒷
 
 
-[ata](https//:heycakeysucks.atabook.org) [prns](https://en.pronouns.page/@W.directorfies) 
+[ata](https//:heycakeysucks.atabook.org) - ✩ - [prns](https://en.pronouns.page/@W.directorfies) 
 
+╰sign my ata for Robux!!! trust
 
-<img width="30" height="40" alt="70" src="https://github.com/user-attachments/assets/b2618127-66d2-4892-8fe9-69d4a7c31259" />
+  this is a wip◡◠◡
 
 
 
