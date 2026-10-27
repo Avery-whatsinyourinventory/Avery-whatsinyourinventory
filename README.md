@@ -20,7 +20,7 @@
   
 [how i act](https://howiact.straw.page) 
 
-oomfs! (I will update this soon trust) 
+oomfs! aka friends w git (I will update this soon trust) 
 
 
 [sl3epzz](https://github.com/sl3epzz) [larpchan](https://github.com/larpchan) [TapedJaden](https://github.com/TapedJaden) [mustard-fragger](https://github.com/mustard-fragger) [teatimehue](https://github.com/teatimehue) [khanhlbel](https://github.com/khanhlbel) [ImDumbIdk](https://github.com/ImDumbIdk) [deadbridewalking](https://github.com/deadbridewalking) [wonderlandraja](https://github.com/wonderlandraja) [wifiesitsallyours](https://github.com/wifiesitsallyours) 
