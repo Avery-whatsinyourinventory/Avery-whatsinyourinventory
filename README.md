@@ -18,7 +18,7 @@
   pls read!! 
 
   
-[how i act](https://howiact.straw.page) 
+[how i act](https://swightistic.straw.page) 
 
 oomfs! aka friends w git (I will update this soon trust) 
 
