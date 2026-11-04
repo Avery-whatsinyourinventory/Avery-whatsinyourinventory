@@ -4,7 +4,8 @@
 # WIP
 
 
-<img width="736" height="736" alt="6386" src="https://github.com/user-attachments/assets/4050a120-5666-4445-ac13-3c61b50ba5fc" />
+
+ sm1 be the swight/spreen to my coldified platonically bro...
 
 
 
