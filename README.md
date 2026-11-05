@@ -6,7 +6,7 @@
 
 
  sm1 be the swight/spreen to my coldified platonically bro...
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Merriweather&pause=1000&color=CBCBCB&width=435&lines=im+gonna+tickle+your+toes+tonight.;get+ready..." alt="Typing SVG" /></a>
 
 
 # [watch it](https://www.youtube.com/watch?v=OlSYg3A4N6A)
